@@ -13,7 +13,8 @@ Amante de los perros y gatos
 - 🌱 I’m currently learning about Mithology
 - 💞️ I’m looking to collaborate on everything i could
 - 📫 How to reach me via cellphone (664) 119-50-89
-
+https://www.loom.com/share/5f4149519a494878a30a710f5cee0cd8
+https://www.loom.com/my-videos
 |   |   |   |   |   |
 |---|---|---|---|---|
 |   |   |   |   |   |
